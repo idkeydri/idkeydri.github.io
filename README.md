@@ -5,3 +5,4 @@ Already bored of the songs you keep repeating all day? Well I gotchu !! Cause he
 
 # 1. Adie
 ![image](https://github.com/idkeydri/idkeydri.github.io/assets/151606222/d537eb6c-318d-43eb-8cc0-2b091ece9c6c)
+Adrian Garcia Eugenio, mostly known as Adie, is a filipino singer-songwriter. He is mostly known for his song "Mahika" alongside Janine Berdin, Tahanan, and Paraluman.
